@@ -1,1 +1,3 @@
 # TaffoFuneralServices
+<p>ciao ciao </p>
+<p> The case study chosen concerns Taffo Funeral Services1 (further on: Taffo), a funeral agency that undertaken strong web advertising campaigns since 2017. The Social Media Manager of the agency constantly creates provocative advertising on the theme of death, using current topics. The fame of Taffo is due to the irreverent use of social media to promote a very special type of service, services for dead, which is difficult to put on the web. Taffo is succeeding in this feat. The numbers on the agency's social networks prove it. Let's analyze who Taffo is, what services it offers and how its marketing campaign is structured. </p>
